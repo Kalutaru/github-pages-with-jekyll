@@ -1,3 +1,3 @@
-# Welcome to my blog
+# HOLA HOLA HOLA HOLA
 
-I'm glad you are here. I plan to talk about ...
+HOLA HOLA HOLAP OKEMON ESTO ES UN JUEGO DE POKEMONO HOLA
